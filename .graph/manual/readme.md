@@ -1,1 +1,1 @@
-file:///home/me/Downloads/getstart-en.pdf
+https://www.flightgear.org/support/manual
