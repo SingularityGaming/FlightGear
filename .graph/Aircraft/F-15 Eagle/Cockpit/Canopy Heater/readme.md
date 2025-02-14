@@ -1,3 +1,4 @@
+https://www.google.com/search?q=flightgear+f15+cockpit+canopy+ice+heater
 https://www.google.com/search?q=flightgear+f15+cockpit+window+heater+ice
 https://www.google.com/search?q=flightgear+f15+cockpit+anti+ice
 
